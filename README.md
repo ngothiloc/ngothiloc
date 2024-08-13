@@ -21,7 +21,7 @@ I’m looking to collaborate on:
 
 ## 📫 How to Reach Me
 - 📧 Email: [sendongthap31bn@gmail.com](mailto:sendongthap31bn@gmail.com)
-- 🐦 Twitter: [@yourTwitterHandle](https://twitter.com/yourTwitterHandle)
+- 🐦 Twitter: [@yourTwitterHandle](https://twitter.com/Ngothiloc)
 - 🌐 LinkedIn: [your-linkedin-profile](https://linkedin.com/in/your-linkedin-profile)
 
 ## 😄 Pronouns
